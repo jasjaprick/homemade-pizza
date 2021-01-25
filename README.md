@@ -40,8 +40,11 @@ La Salumeria - Carrer del Comte Borrell, 8, 08015 Barcelona
 
 ### Learn from the pros
 https://www.frenchguycooking.com/pizzadough
+
 https://www.youtube.com/watch?v=SN2HkepzPhU
+
 https://www.youtube.com/watch?v=1-SJGQ2HLp8
+
 https://www.pizzanapoletana.org/en/
 
 
